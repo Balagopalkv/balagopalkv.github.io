@@ -1,2 +1,0 @@
-# balagopalkv.github.io
-Blog
